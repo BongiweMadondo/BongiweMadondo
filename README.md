@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BongiweMadondo
 - 👀 I’m interested in building relationships
-- 🌱 I’m currently learning coding
+- 🌱 I’m currently learning to code
 - 📫 How to reach me on FB: Bongiwe S Madondo
 - 😄 Pronouns: She
 - ⚡ Fun fact: I love coding
